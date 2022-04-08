@@ -1,4 +1,4 @@
-# Metadada
+# Metadata
 
 + Title: Religion of the Apostles
 + Author: Fr. Stephen de Young
@@ -112,3 +112,22 @@ the text would present "Memra" (Hebrew word which means "word".) capitalized
 when, in context, it referred to Yahweh, to indicate it as the Second Person of
 God. Even in contemporary Rabbinical tradition it is a common practice. This is
 done where Yahweh appears to humans.
+
+### Subtitle: Wisdom of God
+
+The Wisdom of God is the subject in Prov. 8. Its gender in Hebrew and Greek is
+feminine, though it shouldn't relate to that which it refers, that is, Christ.
+The Wisdom is alongside God in creation. This chapter was used by Arians in the
+4th century to argue that Christ wasn't eternal, but created before all things,
+thus showing that the tradition associated it with the Logos (Christ). V. 22 is
+the source of controversy. It uses the Hebrew word "qanah", which can mean
+"possessed", and was used in commerce when someone acquired something, but also
+to refer to something already possessed. It is used in Gen. 4:1 when Eve
+"acquires" a child with Yahweh's help. Vv. 24-25 say that Wisdom was produced
+with "birthing pain", thus relating it to something begotten from God. Indeed,
+John crosses this parallel in John 1:14 and 1:18. He links the creator Logos,
+through Whom all things have been created, with God's Wisdom, the "master
+worker" (Prov. 8:31) which was alongside God in His creation. St. Paul thus
+referred to Christ as the "Wisdom of God" (1 Cor. 1:24), and as the "firstborn
+over all creation" (Col. 1:16), through Whom all things were created, and "the
+beginning of all things". (Col. 1:18)
