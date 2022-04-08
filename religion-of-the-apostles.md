@@ -61,3 +61,17 @@ multiple hypostases. ("Substances".) Pre-Christian Jews believed God had
 positions to Arianism, where the exalted person was Moses, Enoch, etc. At the
 Christian dawn, these ideas weren't considered heretical to Jews. Only in the
 2nd century they were, in response to Christian claims.
+
+### Subtitle: The Angel of the Lord
+
+The Angel of the Lord is a figure which appears multiple times throughout the
+Bible. The author lists three. The first is when he appears to Moses inside the
+burning bush. The Angel after refers to himself as Yahweh. The second account is
+when he appears to Gideon. Gideon receives the Angel, which talked as being
+Yahweh, with hospitality. Only after He disappears, Gideon realizes it was the
+Lord. The third example is of Israel's guide in the desert. Yahweh said He would
+send His Angel, and would put His Name in Him. This is an expression that means
+Yahweh would be present there. He uses the same expression with the Temple,
+which indicates His Divine Presence. Yahweh, later, says Himself guided the
+israelites through the desert. Paul also links the Angel with Christ (1 Cor.
+10:3, 4), and Jude does as well. (Jude 1:5)
