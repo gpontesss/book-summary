@@ -53,3 +53,11 @@ OT. With the Spirit, we can bear fruit that even surpasses the Law expectations.
 (Gal. 5) That was the establishment of the New Covenant.
 
 ## Chapter 1: Divine Father and Son
+
+Scholars, even Orthodox, generally assume that early Christians were
+monotheistic Unitarians. The author defends that they believed God existed in
+multiple hypostases. ("Substances".) Pre-Christian Jews believed God had
+"multiple bodies". That was a subject of debate, where there were analogous
+positions to Arianism, where the exalted person was Moses, Enoch, etc. At the
+Christian dawn, these ideas weren't considered heretical to Jews. Only in the
+2nd century they were, in response to Christian claims.
