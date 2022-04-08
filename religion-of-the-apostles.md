@@ -75,3 +75,40 @@ Yahweh would be present there. He uses the same expression with the Temple,
 which indicates His Divine Presence. Yahweh, later, says Himself guided the
 israelites through the desert. Paul also links the Angel with Christ (1 Cor.
 10:3, 4), and Jude does as well. (Jude 1:5)
+
+### Subtitle: The Word of God
+
+Generally, St. John's gospel prologue is interpreted as presenting an evolution
+of Christolog, from a "low" one, which only saw Jesus as the human Messiah, to a
+"high" one, where Christ is seen as the divine Logos. "Logos" is generally taken
+in philosophical terms as a hypstasis of God, which mediates Him with the world
+and His creation. Philo, a jewish philosopher, had this view of the Logos in the
+Hebrew tradition. He also believed the Word was the Angel of the Lord and
+God-begotten. The general interpretation of it being a "development"
+misinterprets the Scriptures. "The Word" is a Person which frequently appears in
+the OT and is identified as Yahweh Himself. The first account is in Gen. 15,
+where the Word appears to Abraham in a "vision". Abraham calls this Person "the
+Lord Yahweh". The second appearance, or, better said, lack of it, is in 1 Sam.
+3:1. There, it says the Word of Yahweh had become rare, and people weren't given
+"visions". In the context, further it is said that the _Word of Yahweh had not
+been revealed_ to Samuel yet. In v. 10, Yahweh _takes His position_ next to
+Samuel to call him. In v. 21, it says "Yahweh began to appear again", and that
+Yahweh was revealed by His Word. Furthermore, in Jer. 1, the Word of Yahweh
+comes to him (v. 4), and it further identifies as "Yahweh" (v. 7). The Person
+touches Jeremiah's mouth (v. 9), once again showing as, not just a heard word,
+but a tangible being. Jeremiah's account is similar to Paul's in Gal. 1:11-16,
+where he says God had chosen him from his mother's womb, (Comp. with Jer. 1:5)
+in which Christ appears as the speaker, a connection between the Word of Yahweh
+and Christ, the incarnate Logos. The last account and bridge is Psalm 33:6,
+where it says that the heavens were made "through the Word of Yahweh", and that
+its armies "proceed from His breath". The Hebrew word for "breath" is "ruach",
+which also means "Spirit" in other contexts. In Gen. 1, the Spirit of Yahweh is
+present hovering over the water, and things are created from the Word of Yahweh.
+John, when in his prologue says that the Word is the mean through what all
+creation came to be, is reflecting the knowledge he acquired from Christ about
+the Hebrew Scriptures. His view is not inconsistent with Jewish thought in the
+tradition from the Second Temple. In some written traditions from this period,
+the text would present "Memra" (Hebrew word which means "word".) capitalized
+when, in context, it referred to Yahweh, to indicate it as the Second Person of
+God. Even in contemporary Rabbinical tradition it is a common practice. This is
+done where Yahweh appears to humans.
