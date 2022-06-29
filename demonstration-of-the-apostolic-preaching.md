@@ -93,3 +93,12 @@ TODO: later transcribe everything here.
     world.
 70. Isaiah's warning to not reject Christ for His passion and suffering, but to
     fear His "birth", that is, the One that is His origin: the Father.
+71. Jeremiah's testifies Jesus' passion. His shadow is a type for His body, made
+    by the Spirit. The body was a shadow for what was behind it, His great
+    Spirit. Just as a shadown is trodden by others, Christ was "trodden" in His
+    passion. His shadow was capable of curing people.
+72. Isaiah talks about Christ's Tomb being source of peace. The ones who were
+    previously adversaries to the jews would be united to them by their Faith in
+    the Lord. Quotes Psalm 21 to talk about his immortality after His
+    resurrection. (It seems that only Ireneaus, in the Christian Antiquity, used
+    this Psalm.)
