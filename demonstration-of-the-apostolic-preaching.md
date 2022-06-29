@@ -102,3 +102,34 @@ TODO: later transcribe everything here.
     the Lord. Quotes Psalm 21 to talk about his immortality after His
     resurrection. (It seems that only Ireneaus, in the Christian Antiquity, used
     this Psalm.)
+73. David, in Psalm 3, talks about Jesus' resurrection. Christ, to whom the
+    Spirit that inspired the prophets belongs to, inspired David. "Sleep" is a
+    metaphor for death.
+74. David's Psalm (3) talks about people being against Yahweh and His anointed.
+    Pilates, (by Ireneaus mistake, wrongly assigned as procurator of Claudius
+    Caesar, instead of Tiberius), controlled by Herod, king of the jews,
+    condemned Jesus, for He was called King, though not of this world. Herod
+    feared losing His kingship for going against Caesar.
+75. Christ's passion by the will of the Father foretold by David in Psalm 89.
+76. Zacariah foretold the spreading of the disciples after Christ's death. 
+77. Oseiah foretold handing of Christ as a gift. Pilate sent Christ to be
+    interrogated by Herod.
+78. Jeremiah foretold Christ's descent to Hades, to save those in there, and to
+    preach the Good News to them. That was the porpuse of His death. (About the
+    passage, it seems to not be in our Bibles, but both Justin Martyr and
+    Ireneaus use it. Justin seems to say it was expurged by the jews.)
+79. Isaiah and Psalms 22 and 119 are cited to support Christ's suffering in the
+    cross. Also Deuteronomy 28.
+80. Job has a passage that foretells the parting of His clothes among the
+    soldiers, and the raffle of His tunic.
+81. Zacariah and Jeremiah's prophecies about Christ being betrayed by 30 silver
+    coins and the money being used to buy a piece of land.
+82. David's prophecy in Psalm 69 about Christ being fed vinegar.
+83. Psalm 68 foretold Christ's ascent to Heaven. He put an end to slavery, which
+    refers to the destruction of the evil angels. (This is part of the true
+    Gospel, according to Stephen Damick. It can be correlated with "slavery to
+    sin", which seems to come from these evil ones. A deeper discussion on what
+    sin is should be required to go further.) After the resurrection of the dead
+    (note that he takes Mat. 27 account of the dead coming out of the tombs
+    literally), Christ appeared to the disciples in the Mount of Olives and then
+    ascended to Heaven. They saw the Heavens "open".
