@@ -62,4 +62,34 @@ TODO: later transcribe everything here.
     judgement. He, as the Word of God, does everything which is His Father's
     will. He will execute judgement for the Father. It also indicates His human
     form by talking about parts of His body.
-61. 
+61. Isaiah's prophecy talks about animals living in peace together. This is an
+    analogy to how disciples of Christ can deeply change from ruthless animals
+    to meek ones. Also, it talks about Christ's rising from the dead in His
+    resurrection. He is risen as God. (Is there a difference between "as" and
+    "by" in Greek? Or could it be an either/or situation that depends on the
+    translator?)
+62. Isaiah calls Christ's body "a tent". That prefigures he being a man on the
+    outside, but God in power, the judge of the Universe.
+63. Micah's prophecy complements the davidic virginal birth from Isaiah: Christ
+    should come from Bethlehem.
+64. Messiah was to come after David, since his Kindgom was not everlasting.
+    Prophecies show that people should look for the Messiah among the tribe of
+    Judah, that should come from Bethlehem.
+65. Isaiah's prophecy: "Daughter of Zion" is a name for Jerusalem; Christ enters
+    the "Daughter of Zion" in an ass.
+66. Prophets foretold Christ's birth place, that He would be the King of
+    Eternity, the cures He would perform and His suffering and death.
+67. Isaiah's prophecies about Jesus' miracles: cures for the disabled, the
+    blind, the deaf, and resurrections. (Note on the Holy Spirit: it seems to
+    talk in prophecies as things already happened. He does so for for God things
+    planned are considered to have already happened.)
+68. Christ's passion foretold by Isaiah, David and Jeremiah: He would suffer for
+    our sins, even though no error was found in Him. David talks about being
+    tortured, but He said it meaning Christ, as told by the Verb to him. (Christ
+    is called "Yahweh's arm".)
+69. Isaiah's prophecy about Christ's silent sufferring. His death is a sentence
+    taken in behalf of the just men, so they can be saved; the wicked shall take
+    the sentence themselves, being condemned to suffer after the end of this
+    world.
+70. Isaiah's warning to not reject Christ for His passion and suffering, but to
+    fear His "birth", that is, the One that is His origin: the Father.
