@@ -1,5 +1,14 @@
 # Demonstration of the Apostolic Preaching
 
+## Impressions
+
++ Ireneaus, though not explicitly trinitarian (though chapter 47 seems to be the
+  closest to it), quotes a lot of OT passages that are directed at Yahweh and
+  attributes it to the Son. He surely thinks the Son's name is the means to
+  salvation, as well that He is worth of worship (See chapter 91).
+
+## Summary by chapter
+
 TODO: later transcribe everything here.
 
 45. Jacob, in His dream, saw the Son in the top of the Stairway to Heaven. We
@@ -149,5 +158,42 @@ TODO: later transcribe everything here.
     and love, since the two greater commandments involve love and are the
     completion of the entire Law according to the Lord. This is the "brief word"
     sent to the whole world, foretold in Isaiah 10.
-88. 
-
+88. Christ was elevated; no creature can be compared with him. (Does it imply
+    that Ireneaus thought He was a creature?) Ireneaus composed a verse about
+    Christ's rise. Isiah 65 affirms a new name would be given to His people.
+    (That is, in the NT, multiple times people are said to be said by Christ's
+    name. What does it entail? Were these Christians really confused about the
+    Tetragrammaton in the LXX to mistake one thing with another? Did the
+    apostles suffer from the same problem?) Isaiah 63 says that the Face of God
+    saved His people. (There's seems to be some translation issues on this
+    verse, and some may say that it was "the Angel of His Presence", which, as
+    well, is prefiguration of the Trinity with Father, Son, and Holy Spirit. The
+    Greek may have some disanguiations to what Ireneaus thought it meant, as
+    well as the LXX, the version used by people of that time.)
+89. Christ's new Covenant doesn't require Moses' Law, but is supported by Faith
+    in Him. The preaching reached the gentiles, called "desert" and "dry soil"
+    in Isaiah 43. The Verb dwelled among them with His Holy Spirit, not
+    previously present there, which taught them the way of justice. The Spirit
+    is said to dwell in the face of the Earth until the end of times. (In Acts
+    2:14-21, it's easy to see the Holy Spirt dewlling in the primitive Church;
+    John 7:38, the Lord says everyone who has faith in Him will have the Holy
+    Spirit.)
+90. He quotes Romans to say we're guided and taught, not by the Law, but by the
+    Spirit. Jeremiah foretold that God would make a new Covenant with His
+    people.
+91. Isaiah 17 foretold that the pagans would leave their altars and incense to
+    "look at the Holy One of Israel", (Expression used in a lot places in the
+    book of Isaiah.) which is Christ, Who is comtemplated with attention. He
+    took away the necessity of hoping on altars.
+92. He attributes Isaiah 65 to the Son, which was manifested and dwelled among
+    men.
+93. Oseiah foretells that the Gentiles would become sons of God. (Tha is also
+    spoken by Paul in Romans 9.) Justification by faith. Ezekiel talks about
+    people having "a heart of flesh" to obbey God's commandments.
+94. The Gentiles came to produce more members of the Church than "the old
+    sinagogue". Isaiah's prophecy of the sterile woman refer to the Church,
+    which gave birth to children in posterior times.
+95. God gave priority to those who did not know Him, the Gentiles. That was
+    prophesied in Deuteronomy. Israel accepted Baal, rejected the Son of God and
+    declared Caesar as their king. Christ is the Law's Lord, and through Him we
+    learn true love, the two greatest commandments.
