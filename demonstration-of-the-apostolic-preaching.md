@@ -133,3 +133,21 @@ TODO: later transcribe everything here.
     (note that he takes Mat. 27 account of the dead coming out of the tombs
     literally), Christ appeared to the disciples in the Mount of Olives and then
     ascended to Heaven. They saw the Heavens "open".
+84. David, in Psalm 24, foretells Christ's ascent to Heaven. Gates, in the
+    Psalm, are the ones in Heaven. Angels are the ones pronouncing the command
+    to open the gates. (Interesting that the King of Glory in the Psalm is
+    Yahweh. Ireneaus should know this, and, yet, chose to use it as referring to
+    Christ. There you also see Yahweh only being called "Mighty", and not
+    Almighty, as Christ is called in Isaiah 9.)
+85. Christ is sitting at the Right Hand of the Father waiting for His enemies to
+    be defeated. These are rebel angels that despise the Truth. David foretold
+    it in Psalm 110.
+86. Apostles preached Christ's death and His defeat of Death. Preaching foretold
+    by Isaiah 52. Isaiah 2 said that "Yahweh's Word" would come from Jerusalem.
+    Preaching to all nations foretold by Psalm 19.
+87. Ireneaus affirms that Law argumentation can't save anyone, but only charity
+    and love, since the two greater commandments involve love and are the
+    completion of the entire Law according to the Lord. This is the "brief word"
+    sent to the whole world, foretold in Isaiah 10.
+88. 
+
