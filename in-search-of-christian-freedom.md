@@ -105,3 +105,56 @@ Greek texts? Why were Christians writings different? There seem to be no
 evidence in favor of a so called "restoration".
 
 ### Testimony of the Existing Scriptures Themselves
+
+Even if all the "restorations" made were to be accepted, there a question to be
+faced: why do some letters with extreme theological importance don't contain the
+divine Name? Most notable are John's epistles, 1 Tim., and Phil. In fact, these
+talk way more about Jesus than about the Father. Counting all "restorations",
+the Son's name still is more mentioned in the entire NT. WT articles follow an
+inverse pattern. Following the Christian practice would raise questions of
+apostasy in modern WT. They seem to follow more the habit of pre-Christian
+Scriptures than that of Christian ones.
+
+### Why the Change from Pre-Christian to Christian Times?
+
+The sudden change from OT usage of the divine Name to abscence of it in the NT
+seem strange and requires an understanding of what "name" means in the Bible. In
+WT books, a name can be defined not merely as a token that identifies a person,
+but this whole person's reputation, will, purpose, character, etc. This was true
+in Hebrew culture. When Moses, in Exodus, tells God's name to people, it's not
+as if they didn't know the tetragrammaton, but that God was getting closer to
+the nation and showing His own reputation to them, making them know Him in a
+deeper way.
+
+When Jesus came to earth, He made His Father's Name known. It's not like the
+disciples didn't know God's Name already, since they were jewish, but that they
+came to understand His personality with much more depth, for the Son was in the
+Father's bosom and came to reveal Him. (John 1; 14; 17.) In the baptismal
+formula of Mat. 28, you can see "the name" of Father, Son and Holy Spirit being
+used to refer to the personal knowledge of each one.
+
+Simply using one's name, then, doesn't stand to the Bible's standards. If we say
+"Jesus" or "Jehovah" too much without comprehending their personalities, we are
+paying "lip service" and using their name in vain.
+
+### The COnclusive Way of Identifying the True God
+
+Of the many mentions to God in the NT, the writers simply chose to use "God" to
+refer to Him, sometimes as "Father" or "Lord God". When Paul describes that, in
+contrast with the existence of many worshipped "gods", there's only One God, he
+feels no need to use the tetragrammaton. Neither he does it when he speaks to
+the people of Athens about the "unknown God" that the greeks worshipped. They
+simply know who the Person they were referring to was.
+
+### The Revelation of God's True Name Through His Son
+
+Thus a name being much more than a title, but meaning what a Person does, stands
+for and is in character, Jesus came to make His Father's Name known by reveiling
+this knowledge of Him to people, as John says in John 1:18. The WT, in an
+article from 1973, admits all of these points. Arguing about how people are
+saved through faith in the name of Christ, they also bring up these same
+arguments. Nonetheless, they accuse as "apostates" those that don't use the name
+"Jehovah" with the same emphasis and frequency as they do. By the same
+standards, the NT writers are "apostates" too.
+
+### The Designation Preferred By Christ
